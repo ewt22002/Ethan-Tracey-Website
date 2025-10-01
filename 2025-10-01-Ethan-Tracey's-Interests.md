@@ -11,16 +11,16 @@ So, what are they?
   
   - White Mountains in New Hampshire
   
-  *Backpacking on the Appalachian Trail
+  - Backpacking on the Appalachian Trail
   
-  *University of Connecticut Outing Club
+  - University of Connecticut Outing Club
 
-*Climbing
+- Climbing
   
-  *Indoors and Outdoors
+  - Indoors and Outdoors
   
-  *Boulders and Mountains
+  - Boulders and Mountains
 
-*Environmental Advocacy
+- Environmental Advocacy
   
-  *Research into Climate Change 
+  - Research into Climate Change 
