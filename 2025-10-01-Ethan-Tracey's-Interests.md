@@ -7,9 +7,9 @@ I do plenty of things outside of Physics, and feel like you need to know about t
 
 So, what are they?
 
-*Hiking
+- Hiking
   
-  *White Mountains in New Hampshire
+  - White Mountains in New Hampshire
   
   *Backpacking on the Appalachian Trail
   
